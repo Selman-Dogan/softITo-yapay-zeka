@@ -1,0 +1,1 @@
+# softITo-yapay-zeka
